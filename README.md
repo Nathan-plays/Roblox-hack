@@ -1,2 +1,2 @@
-This project was stared by Nathan
+This project was started by Nathan
 Discord: v16Nate#1272
